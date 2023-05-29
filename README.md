@@ -1,0 +1,1 @@
+# Declaration-of-Sole-Authorship
